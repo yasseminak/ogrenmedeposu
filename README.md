@@ -1,0 +1,2 @@
+# ogrenmedeposu
+ogrenme
